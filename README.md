@@ -1,1 +1,1 @@
-Game code is private, here just games memories. 
+Game code is private, here just retro memories. 
